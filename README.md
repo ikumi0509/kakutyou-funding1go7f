@@ -1,1 +1,0 @@
-# kakutyou-funding1go7f
